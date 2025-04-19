@@ -1,1 +1,1 @@
-# girly-room-decor
+# girly-room-decor-ideas
